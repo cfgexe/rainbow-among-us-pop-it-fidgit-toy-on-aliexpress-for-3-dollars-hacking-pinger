@@ -1,5 +1,5 @@
 @echo off
-color A2
+color 0A
  
 title hacker
 

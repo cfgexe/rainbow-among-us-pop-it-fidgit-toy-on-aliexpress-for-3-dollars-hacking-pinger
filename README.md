@@ -1,1 +1,2 @@
-# rainbow-among-us-pop-it-fidgit-toy-on-aliexpress-for-3-dollars-hacking-pinger
+# AMONG US SUSSY IMPOSTER POPIT DABAY ALIEXPRESS RAINBOW 3 DOLLAR HACK PING IP DDOS ATTACK?!?!
+# wtf is my life
